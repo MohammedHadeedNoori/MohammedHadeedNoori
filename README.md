@@ -6,4 +6,4 @@ hello there!
 - 😄 Pronouns: he/him
 - 🚻 Gender: Male
 - 🕐 Country: United Kingdom
-- 📷 YouTube: https://www.youtube.com/@MohammedHadeedNoori2026
+- 📷 YouTube link: https://www.youtube.com/@MohammedHadeedNoori2026
